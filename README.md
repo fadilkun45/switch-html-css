@@ -5,5 +5,4 @@
 > semoga bermanfaat :)
 
 
-picture
 
